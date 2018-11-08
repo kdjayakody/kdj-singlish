@@ -8,3 +8,6 @@ Sinhala Typing Desktop Application - 100% Free. <br>
 <br>
 <br>
 ඒ වගේම වෙනත් මෘදුකාංග භාවිතා කරා වුණත් ඒව Photoshop, Illustrator, Premiere Pro වැනි මෘදුකාංගවලට Support නොකරයි. ඔබ Graphic Designer කෙනෙක් හරි Video Editor කෙනෙක් හරිනම්, මෙය ගොඩක් වැදගත් වෙයි කියල මම හිතනවා.
+<br>
+<br>
+www.singlish.kdjguru.com
